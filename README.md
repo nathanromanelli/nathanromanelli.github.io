@@ -1,2 +1,3 @@
-![8e031d17-8f7d-4031-92c6-630e6fed1dec.png]({{site.baseurl}}/8e031d17-8f7d-4031-92c6-630e6fed1dec.png)
+#You thought it was some bullshit course
 
+![]({{site.baseurl}}//566.gif)![566.gif]({{site.baseurl}}/566.gif)
